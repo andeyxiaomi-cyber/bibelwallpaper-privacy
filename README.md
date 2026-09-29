@@ -1,1 +1,1 @@
-# bibelwallpaper-privacy
+# Bibelwallpaper-Privacy
